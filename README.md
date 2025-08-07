@@ -1,4 +1,4 @@
-## Hi there 👋
+## oi! eu sou á Maria, mais para os mais intimos eu sou a Mary!!🦊 esse é o meu projeto, espero que gostem :
 
 <!--
 **Mary348/Mary348** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
